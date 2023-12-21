@@ -33,5 +33,3 @@ We're always excited to collaborate on new projects. If you have a vision you'd 
 Follow us on [LinkedIn](https://www.linkedin.com/company/litidea) for the latest updates and creative insights.
 
 Let's create something extraordinary together!
-
-![Litidea Logo]([url_to_your_logo.png](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmostaql.com%2Fportfolio%2F1172372-%25D8%25AA%25D8%25B5%25D9%2585%25D9%258A%25D9%2585-%25D8%25B4%25D8%25B9%25D8%25A7%25D8%25B1-%25D9%2588%25D9%2587%25D9%2588%25D9%258A%25D8%25A9-%25D8%25A8%25D8%25B5%25D8%25B1%25D9%258A%25D8%25A9-litidea&psig=AOvVaw0ErIWgHetOF3T14ak0mCqp&ust=1703278843048000&source=images&cd=vfe&ved=0CBIQjRxqFwoTCIiBp_K1oYMDFQAAAAAdAAAAABAE)https://www.google.com/url?sa=i&url=https%3A%2F%2Fmostaql.com%2Fportfolio%2F1172372-%25D8%25AA%25D8%25B5%25D9%2585%25D9%258A%25D9%2585-%25D8%25B4%25D8%25B9%25D8%25A7%25D8%25B1-%25D9%2588%25D9%2587%25D9%2588%25D9%258A%25D8%25A9-%25D8%25A8%25D8%25B5%25D8%25B1%25D9%258A%25D8%25A9-litidea&psig=AOvVaw0ErIWgHetOF3T14ak0mCqp&ust=1703278843048000&source=images&cd=vfe&ved=0CBIQjRxqFwoTCIiBp_K1oYMDFQAAAAAdAAAAABAE)
